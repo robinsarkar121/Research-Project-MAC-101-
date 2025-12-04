@@ -70,3 +70,5 @@ Battery backup
 🌐 Linktree – https://linktr.ee/robin.sarkar
 
 📷 Instagram – @robin_sarkar1
+
+Link to the presentation: https://www.canva.com/design/DAG6SRo4_Z8/naXZjua5y4rfPr9SlOCj1Q/edit?utm_content=DAG6SRo4_Z8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
